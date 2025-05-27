@@ -4,6 +4,8 @@
 
 **Toca Boca Online** is a **legendary life simulation game** designed to ignite creativity and curiosity. Dive into a **vibrant 3D world** where you're free to **create characters**, **build homes**, **run shops**, and even **host wild parties**. Whether you want to be a doctor, a chef, or just throw an insane dance party – *Toca Boca* gives you the freedom to do it all.
 
+## <a href="https://1kb.link/zkLjDB">👉 Click To Play Toca Boca Unblocked NOW 👈</a>
+
 ---
 
 ### 🌟 Why Toca Boca Online Stands Out
